@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @stas-j
+- 👀 I’m interested in books 📖, hardstyle ❤️ and concrete 👷🏻‍♂️
+- 💞️ I’m looking for internship 🙏🏻
+- 📫 How to reach me? dc: jezuchryste-bubus#1260
